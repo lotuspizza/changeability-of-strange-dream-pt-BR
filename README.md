@@ -87,7 +87,7 @@ Se fosse você, saberia onde estava num instante; nunca iria se perder, não é?
 
 > Assim que pensei nisso, ouvi uma gargalhada estranha vindo atrás de mim!
 
-### *Meninos e Meninas da Era da Ciência*
+### ***Meninos e Meninas da Era da Ciência***
 ***“ Menino e Menina do Século XXI”***
 
 > “Aqui estão os cookies que comprei na mansão escarlate, e os brotos de bambu naturais da floresta de bambu”.
@@ -107,7 +107,7 @@ Se continuo trazendo coisas dos meus sonhos sem perceber, então talvez até a c
 Mas se eu pudesse transformá-los de pesadelos em bons sonhos, talvez preferisse-os ao invés da minha realidade atual...
 “Os brotos de bambu naturais escondem-se debaixo da terra, para se protegerem enquanto estão macios e saborosos.”
 
-### *Retribuição pela Noite Eterna ~ Noite Imperecível*
+### ***Retribuição pela Noite Eterna ~ Noite Imperecível***
 
 > Corri por amor à vida, apesar de estar num sonho.
 Não sabia o porquê, mas as gargalhadas que ouvia pareciam ser de algo que claramente não era humano.
@@ -134,7 +134,7 @@ Mesmo nos sonhos, é preciso fugir de coisas de natureza desconhecida. Essa é a
 > O meu mestrado é psicologia relativista.
 O da Renko é física super-unificada. Me pergunto se o seu recente estudo de cordas está indo bem?
 
-### *Quedas da Noite ~ Estrela Vespertina*
+### ***Quedas da Noite ~ Estrela Vespertina***
 
 > Mas... é estranho.
 Apesar de haver uma quantidade absurda de pessoas antiquadas como você, que consideram os sonhos e a realidade como opostos diretos, ouvi dizer que há muito, muito tempo atrás, as pessoas não distinguiam sonhos e realidade.
@@ -159,7 +159,7 @@ A sua cor poderia estar mais próxima da do teste de chamas de rubídio, talvez?
 > Não era nada parecido com um talo de bambu a brilhar.
 Mantendo-me cautelosa com o que poderia estar atrás de mim, espreitei furtivamente em direção à luz.
 
-### *Julgamento da Boneca ~ A Garota que Brincou com as Formas das Pessoas*
+### ***Julgamento da Boneca ~ A Garota que Brincou com as Formas das Pessoas***
 ***"Mestra da Boneca"***
 
 > Mas, oh, o que eu vi com os meus próprios olhos!
@@ -184,7 +184,7 @@ Mas não estava mais olhando para mim. Em vez disso, tinha virado-se para a luz 
 Para minha surpresa, o rato grande assustou-se com aquela luz escarlate.
 Virei a cara para o escarlate brilhante...
 
-### *Fronteira Entre os Sonhos e a Realidade*
+### ***Fronteira Entre os Sonhos e a Realidade***
 ***Acorde, Garota Misteriosa***
 
 > “E este, é o pedaço de papel que encontrei no chão depois do rato grande e da garota terem ido embora.”
@@ -207,7 +207,7 @@ Porque é que me escondi mesmo depois de ela ter perseguido o rato por mim? É p
 > Olhei nos olhos da garota, um vermelho muito mais escarlate ao do grande rato...
 “...Não se pode chamar **aquilo** humano.”
 
-### *Máquina de Fantasia ~ Fábrica de Fantasmas*
+### ***Máquina de Fantasia ~ Fábrica de Fantasmas***
 
 > Por fim, Merry não falou de outra coisa senão do mundo dos seus sonhos, antes de se ir embora sozinha, satisfeita.
 Pensei no que ela disse enquanto olhava para o pequeno número de objectos que me deixou. A Merry estava sempre dizendo que os sonhos e a realidade são a mesma coisa, mas isso não é possível. Mesmo utilizando o senso comum da psicologia relativista moderna, o campo só lida com assuntos da mente, e se os objetos de um sonho aparecessem no mundo real, seria tão problemático como sempre. Isso invalida a lei da conservação da massa. O que é que isso faria à entropia?
@@ -223,7 +223,7 @@ Se eu deixar as coisas continuarem como estão, ela pode ser comida por um youka
 > : Qual é o melhor para a Merry? Qual é a solução geral para mim?
 : ...Não é óbvio?
 
-### *Ácer Místico ~ Sonho Eterno*
+### ***Ácer Místico ~ Sonho Eterno***
 > “Honestamente, você sempre se atrasa, Renko, apesar de que é você quem sempre me convida.”
 “Merry, eu estava apenas atrasada por 3 minutos e 15 segundos. Foi quase, não é?”
 “O que você quer dizer com 'quase'? Ou eu deveria dizer, o que você queria hoje?”
