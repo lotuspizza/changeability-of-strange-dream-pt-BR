@@ -29,7 +29,7 @@ Um conto de fadas de um sonho fabricado, falando de uma antiga e bela capital.
 Sob a luz do sol, uma cidade é contaminada.
 
 ### *Sonho de Huaxu*
-***"Sonho Paradisíaco"***
+***“Sonho Paradisíaco”***
 > “…E foi isso que aconteceu. Eu tive um sonho como esse ontem.” 
  “…então você está falando sobre seus sonhos novamente?” 
  “Naturalmente. Eu a convidei para vir aqui porque queria conversar com você sobre eles.” 
@@ -65,7 +65,7 @@ Talvez eu deva perguntá-la?
 Eu gostaria de cumprimentar [a dona de uma mansão tão bonita](https://en.touhouwiki.net/wiki/Remilia_Scarlet).
 
 ### ***Viagem 1969***
-***"1969, do Cabo Canaveral"***
+***“1969, do Cabo Canaveral”***
 
 > O cenário era o mesmo, não importava o quanto eu andasse.  
 O sol já tinha se posto, e eu não conseguia nem mesmo ver o chão sob meus próprios pés...
@@ -90,7 +90,7 @@ Se fosse você, saberia onde estava num instante; nunca iria se perder, não é?
 > Assim que pensei nisso, ouvi uma gargalhada estranha vindo atrás de mim!
 
 ### ***Garotos e Garotas da Era da Ciência***
-***"Garoto e Garota do Século XXI"***
+***“Garoto e Garota do Século XXI”***
 
 > “Aqui estão os cookies que comprei na mansão escarlate, e os brotos de bambu naturais da floresta de bambu”.  
 “Hã? Pensei que estava a falar de um sonho, Merry?”  
@@ -162,7 +162,7 @@ A sua cor poderia estar mais próxima da do teste de chamas de rubídio, talvez?
 Mantendo-me cautelosa com o que poderia estar atrás de mim, espreitei furtivamente em direção à luz.
 
 ### ***Julgamento da Boneca ~ A Garota que Brincou com as Formas das Pessoas***
-***"Mestra da Boneca"***
+***“Mestra da Boneca”***
 
 > Mas, oh, o que eu vi com os meus próprios olhos!  
 Hoje em dia, é a época em que se pode ver coisas como extintos lobos japoneses ou kappa em computação gráfica 3D...  
@@ -187,7 +187,7 @@ Para minha surpresa, o rato grande assustou-se com aquela luz escarlate.
 Virei a cara para o escarlate brilhante...
 
 ### ***Fronteira Entre os Sonhos e a Realidade***
-***"Acorde, Garota Misteriosa"***
+***“Acorde, Garota Misteriosa”***
 
 > “E este, é o pedaço de papel que encontrei no chão depois do rato grande e da garota terem ido embora.”  
 “Ei, você está mesmo a falar de um sonho?”
