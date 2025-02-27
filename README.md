@@ -30,22 +30,22 @@ Sob a luz do sol, uma cidade é contaminada.
 
 ### *Sonho de Huaxu*
 ***"Sonho Paradisíaco"***
-> "…E foi isso que aconteceu. Eu tive um sonho como esse ontem."  
- "…então você está falando sobre seus sonhos novamente?"  
- "Naturalmente. Eu a convidei para vir aqui porque queria conversar com você sobre eles."
+> “…E foi isso que aconteceu. Eu tive um sonho como esse ontem.” 
+ “…então você está falando sobre seus sonhos novamente?” 
+ “Naturalmente. Eu a convidei para vir aqui porque queria conversar com você sobre eles.” 
 
-> Meu nome é **Maribel Hearn**. Faço parte de um clube de ocultismo nesta cidade sombria. No entanto, diferentemente de um clube de ocultismo comum, não realizamos nenhuma das atividades espirituais sensatas que se poderia esperar. É o que se pode chamar de um clube defeituoso… mesmo antes de acrescentar que esse "clube" tem apenas dois membros.
+> Meu nome é **Maribel Hearn**. Faço parte de um clube de ocultismo nesta cidade sombria. No entanto, diferentemente de um clube de ocultismo comum, não realizamos nenhuma das atividades espirituais sensatas que se poderia esperar. É o que se pode chamar de um clube defeituoso… mesmo antes de acrescentar que esse “clube”tem apenas dois membros.
 
-> "Ei, as coisas que acontecem em seus sonhos são realmente algo que você deveria estar incomodando outras pessoas?"
+> “Ei, as coisas que acontecem em seus sonhos são realmente algo que você deveria estar incomodando outras pessoas?” 
 
 > Mas, deixando isso de lado, tenho um poder incrível. Desde os tempos antigos, os membros da linhagem de minha família têm uma espécie de sensibilidade espiritual…  
 Consigo ver limites – em outras palavras, fronteiras – em todo o mundo. O objetivo do nosso clube é procurar fendas nessas fronteiras, lugares onde se pode mergulhar em outro mundo. 
-Poderíamos chamar isso de algo como "viajar de espírito"?
+Poderíamos chamar isso de algo como “viajar de espírito”?
 
 > …No entanto, esse tipo de coisa é proibido.  
 Mas, recentemente, comecei a ver todos os tipos de outros mundos em meus sonhos…
 
-> "Por favor, se eu não falar com você sobre as coisas nesses sonhos e receber seu conselho, eu não sei se serei capaz de contar qual de mim é real."
+> “Por favor, se eu não falar com você sobre as coisas nesses sonhos e receber seu conselho, eu não sei se serei capaz de contar qual de mim é real.”
 
 ### ***Casa de Chá Escarlate de Xangai ~ Chá Chinês***
 
@@ -65,7 +65,7 @@ Talvez eu deva perguntá-la?
 Eu gostaria de cumprimentar [a dona de uma mansão tão bonita](https://en.touhouwiki.net/wiki/Remilia_Scarlet).
 
 ### ***Viagem 1969***
-***1969, do Cabo Canaveral***
+***"1969, do Cabo Canaveral"***
 
 > O cenário era o mesmo, não importava o quanto eu andasse.  
 O sol já tinha se posto, e eu não conseguia nem mesmo ver o chão sob meus próprios pés...
@@ -89,8 +89,8 @@ Se fosse você, saberia onde estava num instante; nunca iria se perder, não é?
 
 > Assim que pensei nisso, ouvi uma gargalhada estranha vindo atrás de mim!
 
-### ***Meninos e Meninas da Era da Ciência***
-***“ Menino e Menina do Século XXI”***
+### ***Garotos e Garotas da Era da Ciência***
+***"Garoto e Garota do Século XXI"***
 
 > “Aqui estão os cookies que comprei na mansão escarlate, e os brotos de bambu naturais da floresta de bambu”.  
 “Hã? Pensei que estava a falar de um sonho, Merry?”  
@@ -98,14 +98,14 @@ A menina que me está me ouvindo falar dos meus sonhos é **[Renko Usami](https:
 
 > E também, a Renko me chama de Merry. As pessoas neste país parecem ter dificuldade em pronunciar o meu nome, ao ponto de me perguntar se alguém ainda se lembra dele.
 
-> “ Eu **estou** a falar sobre meus sonhos. Eu te disse isso desde o início, não disse?”  
+> “Eu **estou** a falar sobre meus sonhos. Eu te disse isso desde o início, não disse?”  
 “...Mas se isso foram sonhos, então como é que você tem essas coisas aqui na realidade?”  
 “É precisamente por isso que eu queria te consultar.”
 
 > Está ficando difícil para mim dizer o que é um sonho e o que é realidade. Os sonhos normalmente terminam quando estou a sendo perseguida por um youkai. São pesadelos dignos de serem chamados de pesadelos, mas...  
 Se continuo trazendo coisas dos meus sonhos sem perceber, então talvez até a conversa que estou tendo agora seja apenas um sonho...
 
-> “ Está bem, aqui vai o meu primeiro conselho para você, Merry. Estes já não são brotos de bambu. Quando chegam a este tamanho, já são muito duros para comer.”  
+> “Está bem, aqui vai o meu primeiro conselho para você, Merry. Estes já não são brotos de bambu. Quando chegam a este tamanho, já são muito duros para comer.”  
 Mas se eu pudesse transformá-los de pesadelos em bons sonhos, talvez preferisse-os ao invés da minha realidade atual...  
 “Os brotos de bambu naturais escondem-se debaixo da terra, para se protegerem enquanto estão macios e saborosos.”
 
@@ -187,7 +187,7 @@ Para minha surpresa, o rato grande assustou-se com aquela luz escarlate.
 Virei a cara para o escarlate brilhante...
 
 ### ***Fronteira Entre os Sonhos e a Realidade***
-***Acorde, Garota Misteriosa***
+***"Acorde, Garota Misteriosa"***
 
 > “E este, é o pedaço de papel que encontrei no chão depois do rato grande e da garota terem ido embora.”  
 “Ei, você está mesmo a falar de um sonho?”
@@ -245,7 +245,7 @@ Criaturas inumanas com rostos humanos.
 E a fênix ameaçadora...  
 ...Não é justo que Merry seja a única a vê-los!
 
-> "?"
+> “?”
 
 > “Eles aprenderam a pensar que sonho e realidade são a mesma coisa,  
 por causa dos cientistas que pensam igual a vocês.  
