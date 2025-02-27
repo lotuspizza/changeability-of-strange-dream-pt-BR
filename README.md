@@ -1,4 +1,4 @@
-# Changeability of Strange Dream / Alterabilidade de um Sonho Estranho (Tradução)
+# Changeability of Strange Dream / Alterabilidade do Sonho Estranho (Tradução)
 <img src="cover.png" alt="capa de Changeability of Strange Dream" width="500"/>
 
 ## História
